@@ -1,0 +1,1 @@
+juntos por tonosi es una iniciativa humanitaria independiente creada para para recaudar fondos destinados apoyar a familias afectadas en tonosi por el terremoto 7.6 de magnitud y entre otras peninsulas de panama       
